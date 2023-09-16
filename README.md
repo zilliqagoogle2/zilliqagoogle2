@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning to give a gitcoin grant
 - 💞️ I’m looking to collaborate on not sure yet
 - 📫 How to reach me discord: zilliqagoogle2(👽,👽)#4204
+- My twitter is or should I say X account: @Zilliqagoogle2
 
 <!---
 zilliqagoogle2/zilliqagoogle2 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
